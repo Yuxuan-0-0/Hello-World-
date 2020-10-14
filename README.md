@@ -1,3 +1,2 @@
 # Hello-World-🌌🌌🌌
-🌕This is Yuxuan🌕
-🐳Nice to meet you!🐳
+🌕This is Yuxuan, nice to meet you!🌕
